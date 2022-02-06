@@ -9,6 +9,7 @@ More will come soon!
 
 ## Videos
 - https://www.youtube.com/watch?v=u_gOnwWEXiA
+- https://www.youtube.com/watch?v=WXQDruIyPGE
 
 ## Other
 - Hacking YT Videos https://www.youtube.com/results?search_query=hacking
